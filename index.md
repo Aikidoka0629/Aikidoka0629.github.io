@@ -11,3 +11,10 @@ Das auf ein Jahr angesetzte Projekt gerät aber in Vergessenheit.
 * Mutig
 * Intelligent
 * Nutzt Chancen
+
+# Zitat
+
+> Ich heiße nicht 'nicht sicher'.
+
+
+!(https://images-na.ssl-images-amazon.com/images/I/8191WTMA7SL._SY445_.jpg)
